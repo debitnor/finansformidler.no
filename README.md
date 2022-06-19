@@ -1,2 +1,2 @@
-# https://gjeldsforhandlinger.no #
+# https://finansformidler.no #
 Debitnor.no generic page
